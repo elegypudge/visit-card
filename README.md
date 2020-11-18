@@ -1,1 +1,1 @@
-![Impressive](tenor)
+![Impressive](tenor.png)
