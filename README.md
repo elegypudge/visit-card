@@ -15,3 +15,4 @@ WEB-РАЗРАБОТЧИК / HTML-ВЕРСТАЛЬЩИК / ПРОГРАММИС�
 elegy.pudge@gmail.com
 ![Impressive](tenor.png)
 
+![Din](XQcn7RHU7Xw.jpg)
